@@ -6,7 +6,7 @@ Are you an aspiring app or game developer ready to share your creations with the
 Start your income from App business
 
 [CLICK HERE TO GET APP PUBLISH SERVICE] (https://cutt.ly/TeBtvDaJ)
-[CLICK HERE TO GET APP PUBLISH SERVICE] (https://cutt.ly/TeBtvDaJ)
+
 
 
 What is Google Play Console?
